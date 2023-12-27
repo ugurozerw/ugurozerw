@@ -1,4 +1,4 @@
-Welcome to my profile. @ugurozerw
+@ugurozerw
 
 Interested in Data Science.
 
